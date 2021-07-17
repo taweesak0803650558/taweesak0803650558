@@ -8,3 +8,4 @@
 taweesak0803650558/taweesak0803650558 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+https://www.coinwetalk.com/card-mining/register/130866
